@@ -1,4 +1,4 @@
-
+Experience jujutsu shenanigans like never before with jujutsu shenanigans no-ban Scripts, the #1 Script. Includes auto-heal and invisibility for
 
 
 
